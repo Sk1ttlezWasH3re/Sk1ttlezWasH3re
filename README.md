@@ -1,7 +1,14 @@
 ## fries 
 *ummm hi gang this is still like a wip . but I'll say basic info idk*
 
+<img width="932" height="360" alt="RyneEyeForEye" src="https://github.com/user-attachments/assets/07e9f557-d01e-4954-8fe8-f41bd5e382e3" />
+
 **ummmm okay hi. call me Skittles, TwoTime, Ryne or Hacklord. or call me nicknames/any other fictional characters i love nicknames ok**
+
+**if i start teleporting or dissapearing 24/7 don't be questioning things. i havv laggy interneeet ok**
+
+**also i have severe bipolar disorder and people literally just existing CAN trigger me. so if i start telling you tooo stop shit do NOOOOTT!! questiom . ummm yah**
+
 
 im ALWAYS c+h friendly unless i have like DNIUCF etc in my name,, i do zone out and go offtab a LOT if not all the time so like. if i move away it's likely i disconnected and thought i accidentally sat on you and stuff
 
