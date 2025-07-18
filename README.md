@@ -11,6 +11,6 @@ if you wanna see me around because im like, SO COOL! so interactive and all,, im
 anyways also. if you're into Forsaken, Orison, TF2, ^_^, CoS ,BlockTales, Die of Death, TR:UD or S.E.W.H PLEASE INT! i love shared fandoms grrrrrowls  . .  oh also if you're Croatian i need more friends from the same country**
 
 oh yeah and DNI. i don't really hate majorities mostly juust..  specific stuuuf. . 
-yeah so DNI is. Fruitcake fans or *any* dw shippers really,, umm AdminVirus (1xshed) + Toxichero haters because ummmmmm my 2 hvycomf ships ok. also more of thin ice but Jane Doe x John Doe shippers cus i see them as siblings (if you wont come to me and try to shit on me as a 1xdoe shipper cause of the ship then you're fine. then go int brrrr) 
+yeah so DNI is. Fruitcake fans or *any* dw shippers really,, umm AdminVirus (1xshed) + Toxichero haters because ummmmmm my 2 hvycomf ships ok. also more of thin ice but Jane Doe x John Doe shippers cus i see them as siblings (if you wont come to me and try to shit on me (a 1xdoe shipper) cause of the ship then you're fine. then go int brrrr) 
 
 ok thas too much info i think so bye maybe
