@@ -10,7 +10,7 @@
 **also i have severe bipolar disorder and people literally just existing CAN trigger me. so if i start telling you tooo stop shit do NOOOOTT!! questiom . ummm yah**
 
 
-im ALWAYS c+h friendly unless i have like DNIUCF etc in my name,, i do zone out and go offtab a LOT if not all the time so like. if i move away it's likely i disconnected and thought i accidentally sat on you and stuff
+im ALWAYS c+h friendly unless i have like DNIUCF etc in my name,, **OR IF IM ALREADY CUDDLING W/ FRIENDS/MOOTS!! KEEP THIS IN MIIIIMD!! i do zone out and go offtab a LOT if not all the time so like. if i move away it's likely i disconnected and thought i accidentally sat on you and stuff
 
 if you wanna see me around because im like, SO COOL! so interactive and all,, im usually running around as a Ryne, Skittles or sometimes Hacklord cosplay. i mostly join hangouts, labs, fts and sometimes infections so go ahead hunt me down /silly
 
