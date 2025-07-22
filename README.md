@@ -9,7 +9,7 @@
 
 **if i start teleporting or dissapearing 24/7 don't be questioning things. i havv laggy interneeet ok**
 
-**also i have severe bipolar disorder and people literally just existing CAN trigger me. so if i start telling you tooo stop shit do NOOOOTT!! questiom . ummm yah**
+**also i have very severe bipolar disorder and people literally just existing CAN trigger me. so if i start telling you tooo stop shit do NOOOOTT!! questiom . ummm yah . also , please IWVEC at all times because it genuiely takes little to no effort to trigger me , and i can get very easily pissed and quickly start feeling like shit .**
 
 
 im ALWAYS c+h friendly unless i have like DNIUCF etc in my name,, **OR IF IM ALREADY CUDDLING W/ FRIENDS/MOOTS!! KEEP THIS IN MIIIIMD!! i do zone out and go offtab a LOT if not all the time so like. if i move away it's likely i disconnected and thought i accidentally sat on you and stuff
