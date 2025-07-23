@@ -1,27 +1,37 @@
-## fries 
-*ummm hi gang this is still like a wip . but I'll say basic info idk*
+![98003937b9ec42588f1f8a1084a50b22](https://github.com/user-attachments/assets/2b7ab05b-f1b2-4624-a42d-d9258dcfb3bc)
+##
+**Still a huge WIP but hi! I mostly go by Skittles, TwoTime, Hacklord or Ryne! I also like to be called after other characters i present myself with. Please don't call me Foggy / Fog unless we're close or you knew me while i was using that name ; i changed names due to bad experiences.**
 
-<img width="932" height="360" alt="RyneEyeForEye" src="https://github.com/user-attachments/assets/07e9f557-d01e-4954-8fe8-f41bd5e382e3" />
+**Bold - Important/hyperfixated/comfort/etc depending on what is bolded**
+##
+> **BYI**
 
-**ummmm okay hi. call me Skittles, TwoTime, Ryne or Hacklord. or call me nicknames/any other fictional characters i love nicknames ok**
+I have severe bipolar disorder and can be VERY sensitive. I can also get pissed really easily so just please always IWVEC unless close friend. Also please be aware that i CAN randomly spite you even if we never met and be unreasonably rude. Sorry. 
 
-**i have a slight but odd typing quirk where i either say words funni or replace F with PH so if it's hard to understand me sorry !**
+I'm not comfortable with the Dandys World fandom at all, so please either DNIUID or DNIUF. 
 
-**if i start teleporting or dissapearing 24/7 don't be questioning things. i havv laggy interneeet ok**
+Im all free for C+H! Feel free to C+H *as long* as i don't have DNI in my name or im already in a cuddle pile of sorts. 
 
-**also i have very severe bipolar disorder and people literally just existing CAN trigger me. so if i start telling you tooo stop shit do NOOOOTT!! questiom . ummm yah . also , please IWVEC at all times because it genuiely takes little to no effort to trigger me , and i can get very easily pissed and quickly start feeling like shit .**
+I have a odd typing quirk where i replace F with PH, say words funny or etc. If you can't understand me sorry! Also do NOT mock me for any odd way i say things, it's a quirk i got used to.
+
+##
+> **DNI**
+
+i don't really haaaave a DNI besides likee. . . Specific things :T
 
 
-im ALWAYS c+h friendly unless i have like DNIUCF etc in my name,, **OR IF IM ALREADY CUDDLING W/ FRIENDS/MOOTS!! KEEP THIS IN MIIIIMD!! i do zone out and go offtab a LOT if not all the time so like. if i move away it's likely i disconnected and thought i accidentally sat on you and stuff
+**DW shippers.** - I don't like you. ***Especially*** Fruitcake and Moonflower shippers.
 
-if you wanna see me around because im like, SO COOL! so interactive and all,, im usually running around as a Ryne, Skittles. The Broker or sometimes Hacklord cosplay. i mostly join hangouts, labs, fts and sometimes infections so go ahead hunt me down /silly
+**Generally blunt/dry people.** - Idkkk im just very sensitive so it's likely we won't work out. This includes people who are rude for no reason. 
 
-**also the creator of a upcoming lab rp :33
-anyways also. if you're into Forsaken, Orison, TF2, Phightning, ^_^, CoS ,BlockTales, Die of Death, TR:UD or S.E.W.H PLEASE INT! i love shared fandoms grrrrrowls  . .  oh also if you're Croatian i need more friends from the same country**
+**Shared IRLS.** - Mostly for my own comfort :T, i only IRL Broker, TwoTime, Hacklord, Ryne and Skittles. If we're friends then idm sharing IRLs since I'm technically comfortable with you!
 
-oh yeah and DNI. i don't really hate majorities mostly juust..  specific stuuuf. . 
-yeah so DNI is. Fruitcake fans or ***any*** dw shippers really,, umm AdminVirus (1xshed) + Toxichero haters because ummmmmm my 2 hvycomf ships ok. also more of thin ice but Jane Doe x John Doe shippers cus i see them as siblings (if you wont come to me and try to shit on me (a 1xdoe shipper) cause of the ship then you're fine. then go int brrrr) 
+**Overly sexual people.** - I find sexual jokes funny, yes, but not when overdone. This concludes to my other friends ; so please just don't be too sexual towards us especially if you're a stranger. 
+##
+> **Other Info!**
 
-**also a Skittles, TwoTime and Hacklord irl. + TwoTime and Ryne (Orison) yume!! kind of nonsharing for both (i don't feel comfy with people who irl the same chars as me unless friend), although don't mention it and we should be fine i thiiink. idk ummmmmm**
+**PLEASE INTERACT** If you're in one of these fandoms! Reminder im in 200+ fandoms so you're more than free to ask if I'm interested in anything else. ; **TF2**, Epic the Musical, **Creatures of Sonaria**, **^_^**, Forsaken, TR:UD, Let him Go, S.E.W.H , **Phighting**, **Die of Death**, **Orison**, IHasAFaceLulz, Rochas313, **BlockTales**, **generally ANY Roblox-related media**, or Regretevator! Also **Kaleidoscope**. 
 
-ok thas too much info i think so bye maybe
+**PLEASE INTERACT** If you like any of these ships! Again i ship a lot more despite being a lore-focused person so feel free to ask me for more! ; **AdminVirus**, 1xdoe, **Azuretime**, **Toxichero**, Ichance, **Doublefedora**, **Subkit**, **Medhammer**, **Broker x Zuka (idk their ship name lmfao)**, **7n7Noli**, 1x7n7, Pizzaburger, Paycheck or **PartyBeetle** ! 
+
+**PLEASE INTERACT** If you're Croatian! Or any Balkan that speaks similarly really. I love meeting people that share nationalities with me! 
