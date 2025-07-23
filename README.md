@@ -1,6 +1,6 @@
 ![98003937b9ec42588f1f8a1084a50b22](https://github.com/user-attachments/assets/2b7ab05b-f1b2-4624-a42d-d9258dcfb3bc)
 ##
-**Still a huge WIP but hi! I mostly go by Skittles, TwoTime, Hacklord or Ryne! I also like to be called after other characters i present myself with. Please don't call me Foggy / Fog unless we're close or you knew me while i was using that name ; i changed names due to bad experiences.**
+**Still a huge WIP but hi! I mostly go by Skittles, TwoTime, Hacklord, Ryne or Medkit! I also like to be called after other characters i present myself with. Please don't call me Foggy / Fog unless we're close or you knew me while i was using that name ; i changed names due to bad experiences. I do not mind being called Phog/Phoggy though because it's a funi inside joke + a OC i really like.**
 
 **Bold - Important/hyperfixated/comfort/etc depending on what is bolded**
 ##
