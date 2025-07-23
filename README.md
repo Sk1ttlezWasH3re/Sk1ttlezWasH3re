@@ -18,6 +18,11 @@ Please don't vent without asking or try and comfort me when i rant out of anger!
 
 Also please don't have ship discourses or wars around me. I think this is common sense though. 
 
+**I can be AFK/semiAFK , zoned out or playing Roblox/offtab at any given moment even if not stated in name so I'm always under slow resp! If i don't respond I'm likely zoned out, AFK or offtab.**
+
+*Also i hate having to state this but it has happened multiple times so . . . Please do not use me as free bait during Free Builds when someone is Griefing. I rarely build more than a table and a cookie (signature item) due to Griefers + because im usually AFK at either these or Hangouts. So no I'm not Griefing and no my quietness doesn't give you the right to accuse me.*
+
+
 ##
 > **DNI**
 
@@ -31,6 +36,8 @@ i don't really haaaave a DNI besides likee. . . Specific things :T
 **Shared IRLS.** - Mostly for my own comfort :T, i only IRL Broker, TwoTime, Hacklord, Ryne and Skittles. If we're friends then idm sharing IRLs since I'm technically comfortable with you!
 
 **Overly sexual people.** - I find sexual jokes funny, yes, but not when overdone. This concludes to my other friends ; so please just don't be too sexual towards us especially if you're a stranger. 
+
+**Toxichero, Subkit and AdminVirus haters.** - idm if you dislike the ships in question but if you absolutely *despise* them and are generally ready to harass someone over them assuming it's toxic/etc please stay 50 Shedletskys away. Both for your and my safety, please. 
 ##
 > **Other Info!**
 
