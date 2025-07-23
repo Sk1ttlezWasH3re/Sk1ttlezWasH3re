@@ -3,6 +3,9 @@
 **Still a huge WIP but hi! I mostly go by Skittles, TwoTime, Hacklord, Ryne or Medkit! I also like to be called after other characters i present myself with. Please don't call me Foggy / Fog unless we're close or you knew me while i was using that name ; i changed names due to bad experiences. I do not mind being called Phog/Phoggy though because it's a funi inside joke + a OC i really like.**
 
 **Bold - Important/hyperfixated/comfort/etc depending on what is bolded**
+
+**Also sorry if this is LONG i suggest you only read BYI if you want to int. Incase you wanna check the stuff im into look at Other Info :T**
+
 ##
 > **BYI**
 
