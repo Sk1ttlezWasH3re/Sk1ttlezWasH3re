@@ -14,6 +14,10 @@ Im all free for C+H! Feel free to C+H *as long* as i don't have DNI in my name o
 
 I have a odd typing quirk where i replace F with PH, say words funny or etc. If you can't understand me sorry! Also do NOT mock me for any odd way i say things, it's a quirk i got used to.
 
+Please don't vent without asking or try and comfort me when i rant out of anger! Unfortunately due to brain damage + mental issues i cannot express much of how i genuinely feel, so i may seem blunt when responding to sudden vents. I don't really like being comforted or talking about my issues either. 
+
+Also please don't have ship discourses or wars around me. I think this is common sense though. 
+
 ##
 > **DNI**
 
