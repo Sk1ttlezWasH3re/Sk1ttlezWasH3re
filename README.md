@@ -10,7 +10,7 @@
 > 
 > ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 > 
-> <sup> ✦ Strawpage has most info, but it's informative remake is a wip right now urghhhhhh </sup>
+> <sup> ✦ Strawpage has most info, so please look there before interacting with the intention to befriend me! </sup>
 > 
 > <sup> ✦ Feel free to C+H unless im already cuddling! This excludes friends though. </sup>
 >
