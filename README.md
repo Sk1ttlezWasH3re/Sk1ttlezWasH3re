@@ -16,7 +16,7 @@
 >
 > <sup> ✦ Ok yah that's it atm i rhink. Also PLEASEEEE sign my atabook /silly </sup>
 >
-> <sup> ✦ Also DW fandom PLEASE strict DNI unless friend. Especially Astro fans, you guys remind me of a ex and bring back horrid trauma. </sup>
+> <sup> ✦ Also DW fandom PLEASE strict DNI unless friend. Especially Astro fans, you guys remind me of a ex and bring back horrid trauma. You may interact as one if i do first or clearly tolerate you, otherwise PLEASE stay away. </sup>
 
 
  <img width="736" height="260" alt="Untitled1235_20250806230823" src="https://github.com/user-attachments/assets/c65a684c-dc08-4177-9c48-b497f9489e0e" />  
