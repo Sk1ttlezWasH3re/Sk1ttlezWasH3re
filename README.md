@@ -11,6 +11,8 @@
 > ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 > 
 > <sup> ✦ Strawpage has most info, so please look there before interacting with the intention to befriend me! </sup>
+>
+> <sup> ✦ As of 30th Aug 2025 — i may occasionally refer to myself by we/us. Reminder i am **NOT** a OSDD/DID system nor anything similar — It is purely cosmetic/for fun. </sup>
 > 
 > <sup> ✦ Feel free to C+H unless im already cuddling! This excludes friends though. </sup>
 >
