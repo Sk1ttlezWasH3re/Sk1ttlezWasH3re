@@ -1,28 +1,36 @@
 > <sub> Artist credits & Platform should be in the top corner! All art here isn't mine, only the edits / etc are. </sub>
 ##
-
-<img width="736" height="260" alt="Untitled1234_20250806223851" src="https://github.com/user-attachments/assets/cd394b42-510a-44f4-853b-7a50193283b2" />
-
+<sup> " . . . Humility comes wisdom and GRACE, embrace and love as you do Yourself. " */lyr* </sup>
 
 
+<img width="736" height="460" alt="1000057419" src="https://github.com/user-attachments/assets/03037957-cae3-4857-89cb-568515c31456" />
 
-> <sup> Hello! I mainly go by Skittles, TwoTime and Medkit. I love nicknames! </sup>
+
+
+
+
+
+> <sup> Hello! I mainly go by Skittles, although i accept names such as Noli, TwoTime, Rust and any other heavy kin/IRL char. We also accept just "ok". . . It's a funny one. Minor with too much internet access, i may randomly come off as problematic, sorry about that. </sup>
 > 
 > ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 > 
 > <sup> ✦ Strawpage has most info, so please look there before interacting with the intention to befriend me! </sup>
 >
 > <sup> ✦ As of 30th Aug 2025 — i may occasionally refer to myself by we/us. Reminder i am **NOT** a OSDD/DID system nor anything similar — It is purely cosmetic/for fun. </sup>
-> 
-> <sup> ✦ Feel free to C+H unless im already cuddling! This excludes friends though. </sup>
+
+<img width="1500" height="500" alt="1000057415" src="https://github.com/user-attachments/assets/bf7e9f5f-0d10-4561-a975-c40af8acab3a" />
+
+
+> <sup> ✦ Feel free to C+H unless we're already cuddling! This excludes friends though, you're always free to join. </sup>
 >
-> <sup> ✦ Ok yah that's it atm i rhink. Also PLEASEEEE sign my atabook /silly </sup>
+> <sup> ✦ While you're at it, I'd love if you signed my atabook! We promise we don't bite. </sup>
 >
-> <sup> ✦ Also DW fandom PLEASE strict DNI unless friend. Especially Astro fans, you guys remind me of a ex and bring back horrid trauma. You may interact as one if i do first or clearly tolerate you, otherwise PLEASE stay away. </sup>
+> <sup> ✦ DW fandom PLEASE strict DNI unless friend. Especially Astro fans. You may interact as one if we do first or clearly tolerate you, otherwise PLEASE stay away. </sup>
 
 
 
- <img width="736" height="260" alt="Untitled1235_20250806230823" src="https://github.com/user-attachments/assets/c65a684c-dc08-4177-9c48-b497f9489e0e" />  
+<img width="736" height="460" alt="1000057417" src="https://github.com/user-attachments/assets/40110d47-63d8-4f7f-a51a-1a66a5345d3f" />
+
 
 
  
