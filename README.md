@@ -26,6 +26,8 @@
 > <sup> ✦ While you're at it, I'd love if you signed my atabook! We promise we don't bite. </sup>
 >
 > <sup> ✦ DW fandom PLEASE strict DNI unless friend. Especially Astro fans. You may interact as one if we do first or clearly tolerate you, otherwise PLEASE stay away. </sup>
+>
+> <sup> ✦ Discord is @snowfallinohio ask/tell us b4 friending unless you're friending thru a mutual server </sup>
 
 
 
