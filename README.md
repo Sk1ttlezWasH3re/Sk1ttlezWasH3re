@@ -14,7 +14,7 @@
 > 
 > ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 > 
-> <sup> ✦ Strawpage has most info, so please look there before interacting with the intention to befriend me! </sup>
+> <sup> ✦ Read our BYI/DNI carrd before interacting. Strawpage is OUTDATED. --> https://skittlez1dni.carrd.co </sup>
 >
 > <sup> ✦ As of 30th Aug 2025 — i may occasionally refer to myself by we/us. Reminder i am **NOT** a OSDD/DID system nor anything similar — It is purely cosmetic/for fun. </sup>
 
