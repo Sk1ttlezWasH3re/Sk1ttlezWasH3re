@@ -15,8 +15,8 @@
 > ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 > 
 > <sup> ✦ Read our BYI/DNI carrd before interacting. Strawpage is OUTDATED. --> https://skittlez1dni.carrd.co
-> 
-> Our main carrd --> https://sk1ttlez.ju.mp </sup>
+>
+>  <sup> Our main carrd --> https://sk1ttlez.ju.mp </sup>
 >
 > <sup> ✦ As of 30th Aug 2025 — i may occasionally refer to myself by we/us. Reminder i am **NOT** a OSDD/DID system nor anything similar — It is purely cosmetic/for fun. </sup>
 
@@ -28,6 +28,20 @@
 > <sup> ✦ While you're at it, I'd love if you signed my atabook! We promise we don't bite. </sup>
 >
 > <sup> ✦ DW fandom PLEASE strict DNI unless friend. Especially Astro fans. You may interact as one if we do first or clearly tolerate you, otherwise PLEASE stay away. </sup>
+>
+> <sup> ✦ Discord is @snowfallinohio ask/tell us b4 friending unless you're friending thru a mutual server </sup>
+
+
+
+<img width="736" height="460" alt="1000057417" src="https://github.com/user-attachments/assets/40110d47-63d8-4f7f-a51a-1a66a5345d3f" />
+
+
+
+ 
+ 
+ 
+ 
+
 >
 > <sup> ✦ Discord is @snowfallinohio ask/tell us b4 friending unless you're friending thru a mutual server </sup>
 
