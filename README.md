@@ -42,17 +42,3 @@
  
  
 
->
-> <sup> ✦ Discord is @snowfallinohio ask/tell us b4 friending unless you're friending thru a mutual server </sup>
-
-
-
-<img width="736" height="460" alt="1000057417" src="https://github.com/user-attachments/assets/40110d47-63d8-4f7f-a51a-1a66a5345d3f" />
-
-
-
- 
- 
- 
- 
-
