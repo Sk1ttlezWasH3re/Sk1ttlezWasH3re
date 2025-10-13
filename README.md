@@ -8,7 +8,7 @@ To lazy horse mattress best in town ! " `` */ly*r </sup>
 
 
 
-<sup> **AGE REGRESSORS / ANYONE WHO CONDONES SHIPS INVOLVING IT MASSIVE DNI PLEASE FRIEND OR NOT. WE ARE NOT SUPPORTING YOUR POOR EXCUSE FOR PDF ILIA AS VALID. /srs** </sup>
+<sup> **ANYONE WHO CONDONES SHIPS INVOLVING AGE REGRESSION MASSIVE DNI PLEASE FRIEND OR NOT . WE ARE NOT SUPPORTING YOUR POOR EXCUSE FOR PDF AS VALID . /srs** </sup>
 
 
 > <sup> Hello! I mainly go by Skittles, although i accept names such as Noli, TwoTime, Rust and any other heavy kin/IRL char. We also accept just "ok". . . It's a funny one. Minor with too much internet access, i may randomly come off as problematic, sorry about that. </sup>
