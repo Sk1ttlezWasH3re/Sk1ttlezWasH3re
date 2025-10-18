@@ -1,14 +1,12 @@
 > <sub> Artist credits & Platform should be in the top corner! All art here isn't mine, only the edits / etc are. </sub>
 ##
-<sup> `` " If you wanna hit the hay then come on down ,
-To lazy horse mattress best in town ! " `` */ly*r </sup>
+<sup> `` " . . . I know we can make it better , I know we can make it better ! " `` */ly*r </sup>
 
 
 <img width="736" height="460" alt="1000057419" src="https://github.com/user-attachments/assets/03037957-cae3-4857-89cb-568515c31456" />
 
 
 
-<sup> **ANYONE WHO CONDONES SHIPS INVOLVING AGE REGRESSION MASSIVE DNI PLEASE FRIEND OR NOT . WE ARE NOT SUPPORTING YOUR POOR EXCUSE FOR PDF AS VALID . /srs** </sup>
 
 
 > <sup> Hello! I mainly go by Skittles, although i accept names such as Noli, TwoTime, Rust and any other heavy kin/IRL char. We also accept just "ok". . . It's a funny one. Minor with too much internet access, i may randomly come off as problematic, sorry about that. </sup>
