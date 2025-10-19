@@ -1,25 +1,27 @@
 > <sub> Artist credits & Platform should be in the top corner! All art here isn't mine, only the edits / etc are. </sub>
 ##
-<sup> `` " . . . I know we can make it better , I know we can make it better ! " `` */ly*r </sup>
+<sup> `` " I know it's weird , to say you changed me , but things have been really hard for me lately ! " `` */ly*r </sup>
 
 
-<img width="736" height="460" alt="1000057419" src="https://github.com/user-attachments/assets/03037957-cae3-4857-89cb-568515c31456" />
+<img width="2048" height="659" alt="1000061514" src="https://github.com/user-attachments/assets/02a1e7d1-c102-42fe-923d-9f1a71c7684a" />
 
 
 
 
 
-> <sup> Hello! I mainly go by Skittles, although i accept names such as Noli, TwoTime, Rust and any other heavy kin/IRL char. We also accept just "ok". . . It's a funny one. Minor with too much internet access, i may randomly come off as problematic, sorry about that. </sup>
+
+> <sup> Hello! I mainly go by Skittles, although i accept names such as Noli, TwoTime, Rust, Abaddon and any other heavy kin/IRL char. We also accept just "ok". . . It's a funny one. Minor with too much internet access, i may randomly come off as problematic, sorry about that. </sup>
 > 
 > ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 > 
-> <sup> ✦ Read our BYI/DNI carrd before interacting. Strawpage is OUTDATED. --> https://skittlez1dni.carrd.co
+> <sup> ✦ Read our BYI/DNI carrd before interacting . --> https://skittlez1dni.carrd.co
 >
 >  <sup> Our main carrd --> https://sk1ttlez.ju.mp </sup>
 >
 > <sup> ✦ As of 30th Aug 2025 — i may occasionally refer to myself by we/us. Reminder i am **NOT** a OSDD/DID system nor anything similar — It is purely cosmetic/for fun. </sup>
 
-<img width="1500" height="500" alt="1000057415" src="https://github.com/user-attachments/assets/bf7e9f5f-0d10-4561-a975-c40af8acab3a" />
+<img width="1414" height="176" alt="1000061518" src="https://github.com/user-attachments/assets/805c9a48-a609-4e61-8d0b-52cd0da6faa4" />
+
 
 
 > <sup> ✦ Feel free to C+H unless we're already cuddling! This excludes friends though, you're always free to join. </sup>
@@ -32,7 +34,8 @@
 
 
 
-<img width="736" height="460" alt="1000057417" src="https://github.com/user-attachments/assets/40110d47-63d8-4f7f-a51a-1a66a5345d3f" />
+<img width="2048" height="659" alt="1000061515" src="https://github.com/user-attachments/assets/11b74d38-3b01-40af-ae13-196317d912cc" />
+
 
 
 
