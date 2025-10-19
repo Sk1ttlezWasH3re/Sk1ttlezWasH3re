@@ -1,4 +1,3 @@
-> <sub> Artist credits & Platform should be in the top corner! All art here isn't mine, only the edits / etc are. </sub>
 ##
 <sup> `` " I know it's weird , to say you changed me , but things have been really hard for me lately ! " `` */ly*r </sup>
 
