@@ -1,5 +1,4 @@
-**WARNING. If i have "IWCaution" in my name, please genuinely beware. I'm feeling spiteful, really pissed off in a more genuinely angry way than the one where I'd cry. I have a scarily common Chance of lashing out at you, *likely* hurting you in the process or saying otherwise messed up stuff you'd never see me saying. If you're sensitive, i genuinely recommend to full on DNI during this bipolar split of mine ; otherwise you getting hurt is not my issue as I've clearly put up a warning.**
-<sup> I wish putting this warning wasn't a need, but im unfortunately horribly mentally ill to the point where this is necessary. ): </sup>
+<sup> **WARNING. If you've seen my Ranboo cosplay , please keep note I AM NOT INTO DSMP . I only like Ranboo , and i will not tolerate any actual fandomers interacting w/ me . Sorry . . . I just kinda loathe that SMP as an actual MInecraft SMP fandomer .**  </sup>
 ##
 <sup> `` " I know it's weird , to say you changed me , but things have been really hard for me lately ! " `` */ly*r </sup>
 
