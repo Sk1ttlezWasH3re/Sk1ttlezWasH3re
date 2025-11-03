@@ -10,7 +10,7 @@
 
 
 
-> <sup> Hello! We mainly go by Skittles and Rust, although we accept names such as Noli, TwoTime, Jx1dx1 and sometimes Abaddon and any other heavy kin/IRL char. We also accept just "ok". . . It's a funny one. WE HAVE BPD AND ALEXITHYMIA. We in most cases can't recognize what you express unless tonetags are used. We also split often & cannot function without you 4 an extended period of time if we manage to attach(which'll be very rare),, we have severe attachment issues of many kinds. Sorry about that. </sup>
+> <sup> Hello! We mainly go by Skittles and Rust, although we accept names such as Noli, TwoTime, Jx1dx1 and sometimes Abaddon and any other heavy kin/IRL char. We also accept just "ok". . . It's a funny one. WE HAVE BPD AND ALEXITHYMIA. We in most cases can't recognize what you express unless tonetags are used. We also split often & may get attached horribly,, we have severe attachment issues of many kinds. Sorry about that. </sup>
 > 
 > ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 > 
