@@ -1,4 +1,4 @@
-<sup> **WARNING. If you've seen my Ranboo cosplay , please keep note I AM NOT INTO DSMP . I only like Ranboo , and i will not tolerate any actual fandomers interacting w/ me . Sorry . . . I just kinda loathe that SMP as an actual MInecraft SMP fandomer .**  </sup>
+<sup> **README rmk in the progress . . . Soon guys soon !**  </sup>
 ##
 <sup> `` " I know it's weird , to say you changed me , but things have been really hard for me lately ! " `` */ly*r </sup>
 
@@ -10,15 +10,17 @@
 
 
 
-> <sup> Hello! I mainly go by Skittles, although i accept names such as Noli, TwoTime, Rust, Abaddon and any other heavy kin/IRL char. We also accept just "ok". . . It's a funny one. Minor with too much internet access, i may randomly come off as problematic, sorry about that. </sup>
+> <sup> Hello! We mainly go by Skittles and Rust, although we accept names such as Noli, TwoTime, Jx1dx1 and sometimes Abaddon and any other heavy kin/IRL char. We also accept just "ok". . . It's a funny one. WE HAVE BPD AND ALEXITHYMIA. We in most cases can't recognize what you express unless tonetags are used. We also split often & cannot function without you 4 an extended period of time if we manage to attach(which'll be very rare),, we have severe attachment issues of many kinds. Sorry about that. </sup>
 > 
 > ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
 > 
 > <sup> ✦ Read our BYI/DNI carrd before interacting . --> https://skittlez1dni.carrd.co
 >
->  <sup> Our main carrd --> https://sk1ttlez.carrd.co </sup>
+>  <sup> __ Our main carrd --> https://sk1ttlezwash3re.carrd.co </sup>
 >
-> <sup> ✦ As of 30th Aug 2025 — i may occasionally refer to myself by we/us. Reminder i am **NOT** a OSDD/DID system nor anything similar — It is purely cosmetic/for fun. </sup>
+> <sup> ✦ 4teen . Please only send lightly sexual innuendos/jokes unless we're friends.</sup>
+>
+> <sup> ✦ As of 30th Aug 2025 — i may occasionally refer to myself by we/us. Reminder i am **NOT** a OSDD/DID system nor anything similar — It is purely cosmetic/for fun. Will mainly do this with familiar people as we hate being confused as a system. </sup>
 
 <img width="1414" height="176" alt="1000061518" src="https://github.com/user-attachments/assets/805c9a48-a609-4e61-8d0b-52cd0da6faa4" />
 
@@ -32,7 +34,7 @@
 >
 > <sup> ✦ Discord is @snowfallinohio ask/tell us b4 friending unless you're friending thru a mutual server </sup>
 
-
+<sup>Reminder some ships we like are rather controversial/publicly deemed ' invalid ' and only make sense/are backed up by specific AUs (for example Sean x Jx1dx1 , Soviet Union x United States) **DO NOT ATTACK US OVER THIS PLEASE AND THANK YOU , WE HAVE OUR REASONS.** — simply DNI if you are uncomfortable with this. Reminder we do not proship and this will NEVER be a excuse 4 that.</sup>
 
 <img width="2048" height="659" alt="1000061515" src="https://github.com/user-attachments/assets/11b74d38-3b01-40af-ae13-196317d912cc" />
 
