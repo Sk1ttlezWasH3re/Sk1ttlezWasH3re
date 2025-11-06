@@ -34,7 +34,7 @@
 >
 > <sup> ✦ Discord is @snowfallinohio ask/tell us b4 friending unless you're friending thru a mutual server </sup>
 
-<sup>Reminder some ships we like are rather controversial/publicly deemed ' invalid ' and only make sense/are backed up by specific AUs (for example Sean x Jx1dx1 , Soviet Union x United States) **DO NOT ATTACK US OVER THIS PLEASE AND THANK YOU , WE HAVE OUR REASONS.** — simply DNI if you are uncomfortable with this. Reminder we do not proship and this will NEVER be a excuse 4 that.</sup>
+
 
 <img width="2048" height="659" alt="1000061515" src="https://github.com/user-attachments/assets/11b74d38-3b01-40af-ae13-196317d912cc" />
 
