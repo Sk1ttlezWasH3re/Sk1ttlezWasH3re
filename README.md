@@ -1,48 +1,26 @@
-<sup> **README rmk in the progress . . . Soon guys soon !**  </sup>
+<h5 align="left"> WARNING. DOESN'T LOOK THAT GREAT ON MOBILE I THINK.</h5> 
+
 ##
-<sup> `` " I know it's weird , to say you changed me , but things have been really hard for me lately ! " `` */ly*r </sup>
+<p align="center"><i>`` You want an eye . An eye , for an eye . `` /ref </i>
+<p align="left">Call me. . . </p>
+<h3 align="left">Skittles ! Or — Rust, Jx1dx1 and Noli.</h3>
 
+<!--
+Source - https://stackoverflow.com/a
+Posted by DavidCox88, modified by community. See post 'Timeline' for change history
+Retrieved 2025-11-17, License - CC BY-SA 4.0
+-->
 
-<img width="2048" height="659" alt="1000061514" src="https://github.com/user-attachments/assets/02a1e7d1-c102-42fe-923d-9f1a71c7684a" />
+<p><img align="right" height="500" src="https://github.com/user-attachments/assets/ec5b000e-6806-4e5b-a93e-e7cfc178b89d"> 4teen . they/it + we/us <--- *NOT* a system . mainly sapphic , nonbinary + genderfluid and lunarian with optional star/starself pronous . a lot we're sure <br/><br/><br/> Sign atabook , LOOK AT THE LINKS , PLEASE !! Bound Jx1dx1 , Skittles , Noli & Rust_010 ( HJD specific ) IRL . which means they're always THERE !!! DOUBLES HEAVY DNI PLS !!!!! <br/><br/><br/> our main carrd —> https://sk1ttlezwash3re.carrd.co . other links R in my well , links . detailed DNI page is in progress <br/><br/><br/> Very specific but if you are a system and have a Jx1dx1 alter GET AWAY !! DNI , PLS !!!!! DNI DNI DNI . WE DO NOT WANT YOU TO INTERACT WITH ALL RESPECT . Otherwise systems please IWxtremeCaution unless friend we tend to get pitiful and mistreat you guys . It's not on purpose we promise /srs <br/><br/><br/> Alexithymic + pretty bad untreated bpd . may be completely unpredictable so please think twice before befriending . otherwise we don't really bite . Our main interests are Roblox ARGs , Forsaken and Rblx in general !</p>
 
+<p align="right"> AC ; drawn by me !! </p>
 
+##
 
+<i>Do note i <b>can</b> be a shitty person . Not on purpose no , but it's more than possible . We may also get attached pretty easily .</i>
 
+<p>In most cases we are either offtab , semi-afk or just overall distant . Please in most cases W2I !! We play Forsaken a LOT when we afk and , we'd prefer to not be bothered so please DNI in that case unless a close friend . Do keep note if we are with a friend already we'd rather prefer not to be interacted w/ unless its compliments , to point out we share a fandom — Or for the good sake of roleplay if we are in one .</p>
 
+<i>UUUUUH ??? we are . a microceleb almost now ? huh ? ilove you guys please don't explode . /sil</i>
 
-> <sup> Hello! We mainly go by Skittles and Rust, although we accept names such as Noli, TwoTime, Jx1dx1 and sometimes Abaddon and any other heavy kin/IRL char. We also accept just "ok". . . It's a funny one. WE HAVE BPD AND ALEXITHYMIA. We in most cases can't recognize what you express unless tonetags are used. We also split often & may get attached horribly,, we have severe attachment issues of many kinds. Sorry about that. </sup>
-> 
-> ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏
-> 
-> <sup> ✦ Read our BYI/DNI carrd before interacting . --> https://skittlez1dni.carrd.co
->
->  <sup> __ Our main carrd --> https://sk1ttlezwash3re.carrd.co </sup>
->
-> <sup> ✦ 4teen . Please only send lightly sexual innuendos/jokes unless we're friends.</sup>
->
-> <sup> ✦ As of 30th Aug 2025 — i may occasionally refer to myself by we/us. Reminder i am **NOT** a OSDD/DID system nor anything similar — It is purely cosmetic/for fun. Will mainly do this with familiar people as we hate being confused as a system. </sup>
-
-<img width="1414" height="176" alt="1000061518" src="https://github.com/user-attachments/assets/805c9a48-a609-4e61-8d0b-52cd0da6faa4" />
-
-
-
-> <sup> ✦ Feel free to C+H unless we're already cuddling! This excludes friends though, you're always free to join. </sup>
->
-> <sup> ✦ While you're at it, I'd love if you signed my atabook! We promise we don't bite. </sup>
->
-> <sup> ✦ DW fandom PLEASE strict DNI unless friend. Especially Astro fans. You may interact as one if we do first or clearly tolerate you, otherwise PLEASE stay away. </sup>
->
-> <sup> ✦ Discord is @snowfallinohio ask/tell us b4 friending unless you're friending thru a mutual server </sup>
-
-
-
-<img width="2048" height="659" alt="1000061515" src="https://github.com/user-attachments/assets/11b74d38-3b01-40af-ae13-196317d912cc" />
-
-
-
-
- 
- 
- 
- 
 
