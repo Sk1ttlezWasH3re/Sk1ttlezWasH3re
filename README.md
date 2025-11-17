@@ -22,5 +22,8 @@ Retrieved 2025-11-17, License - CC BY-SA 4.0
 <p>In most cases we are either offtab , semi-afk or just overall distant . Please in most cases W2I !! We play Forsaken a LOT when we afk and , we'd prefer to not be bothered so please DNI in that case unless a close friend . Do keep note if we are with a friend already we'd rather prefer not to be interacted w/ unless its compliments , to point out we share a fandom — Or for the good sake of roleplay if we are in one .</p>
 
 <i>UUUUUH ??? we are . a microceleb almost now ? huh ? ilove you guys please don't explode . /sil</i>
+<br></br>
+![1000064095](https://github.com/user-attachments/assets/02af66ca-108c-4f78-aab5-f0e87c8c7920)
+<—— <i> Me and Oomf ^_^</i>
 
 
