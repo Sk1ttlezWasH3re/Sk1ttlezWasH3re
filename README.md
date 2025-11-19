@@ -1,9 +1,9 @@
-<h5 align="left"> WARNING. DOESN'T LOOK THAT GREAT ON MOBILE I THINK.</h5> 
+<h5 align="left"> WARNING. DOESN'T LOOK THAT GREAT ON MOBILE I THINK .</h5> 
 
 ##
 <p align="center"><i>`` You want an eye . An eye , for an eye . `` /ref </i>
 <p align="left">Call me. . . </p>
-<h3 align="left">Skittles ! Or — Rust, Jx1dx1 and Noli.</h3>
+<h3 align="left">Skittles ! Or — Rust , Jx1dx1 and Noli .</h3>
 
 <!--
 Source - https://stackoverflow.com/a
@@ -19,7 +19,11 @@ Retrieved 2025-11-17, License - CC BY-SA 4.0
 
 <i>Do note i <b>can</b> be a shitty person . Not on purpose no , but it's more than possible . We may also get attached pretty easily .</i>
 
+<b>Please do not harass us about <i>ANYTHING</i> we say on systems as it isn't in an negative light . We have been going through this for awhile now and we're genuinely fucking sick and tired . Thank you . If you are a decent human being however , still feel free to int !</b>
+
 <p>In most cases we are either offtab , semi-afk or just overall distant . Please in most cases W2I !! We play Forsaken a LOT when we afk and , we'd prefer to not be bothered so please DNI in that case unless a close friend . Do keep note if we are with a friend already we'd rather prefer not to be interacted w/ unless its compliments , to point out we share a fandom — Or for the good sake of roleplay if we are in one .</p>
+
+<p>I am <b>severely</b> mentally ill and CAN do bad things without the intention of doing so . I can also get verbally violent so please just be aware who you're interacting with — We are not a shitty person we promise , but we'd prefer you save the trouble and *not* befriend us unless we absolutely ask first . Otherwise feel free to int</p>
 
 <i>UUUUUH ??? we are . a microceleb almost now ? huh ? ilove you guys please don't explode . /sil</i>
 <br></br>
