@@ -11,19 +11,18 @@ Posted by DavidCox88, modified by community. See post 'Timeline' for change hist
 Retrieved 2025-11-17, License - CC BY-SA 4.0
 -->
 
-<p><img align="right" height="500" src="https://github.com/user-attachments/assets/ec5b000e-6806-4e5b-a93e-e7cfc178b89d"> 4teen . they/it + we/us <--- *NOT* a system . mainly sapphic , nonbinary + genderfluid and lunarian with optional star/starself pronous . a lot we're sure <br/><br/><br/> Sign atabook , LOOK AT THE LINKS , PLEASE !! Bound Jx1dx1 , Skittles , Noli & Rust_010 ( HJD specific ) IRL . which means they're always THERE !!! DOUBLES HEAVY DNI PLS !!!!! <br/><br/><br/> our main carrd —> https://sk1ttlezwash3re.carrd.co . other links R in my well , links . detailed DNI page is in progress <br/><br/><br/> Very specific but if you are a system and have a Jx1dx1 alter GET AWAY !! DNI , PLS !!!!! DNI DNI DNI . WE DO NOT WANT YOU TO INTERACT WITH ALL RESPECT . Otherwise systems please IWxtremeCaution unless friend we tend to get pitiful and mistreat you guys . It's not on purpose we promise /srs <br/><br/><br/> Alexithymic + pretty bad untreated bpd . may be completely unpredictable so please think twice before befriending . otherwise we don't really bite . Our main interests are Roblox ARGs , Forsaken and Rblx in general !</p>
+<p><img align="right" height="500" src="https://github.com/user-attachments/assets/ec5b000e-6806-4e5b-a93e-e7cfc178b89d"> 4teen . they/it + we/us <--- *NOT* a system . mainly sapphic , nonbinary + genderfluid and lunarian with optional star/starself pronous . a lot we're sure <br/><br/><br/> Sign atabook , LOOK AT THE LINKS , PLEASE !! Bound Jx1dx1 , Skittles , Noli & Rust_010 ( HJD specific ) IRL . which means they're always THERE !!! DOUBLES HEAVY DNI PLS !!!!! <br/><br/><br/> our main carrd —> https://sk1ttlezwash3re.carrd.co . other links R in my well , links . detailed DNI page is in progress <br/><br/><br/> Systems please IWxtremeCaution unless friend we tend to get pitiful and mistreat you guys . It's not on purpose we promise /srs <br/><br/><br/> Alexithymic + pretty bad untreated bpd . may be completely unpredictable so please think twice before befriending . otherwise we don't really bite . Our main interests are Roblox ARGs , Forsaken and Rblx in general !</p>
 
 <p align="right"> AC ; drawn by me !! </p>
 
 ##
 
-<i>Do note i <b>can</b> be a shitty person . Not on purpose no , but it's more than possible . We may also get attached pretty easily .</i>
+<i>Do note i <b>can</b> and will say things i don't actually mean . Not on purpose no , but it's more than possible , not to mention we take most things to heart due to bpd so just please be careful with us , you cry and we'll cry . We may also get attached pretty easily .</i>
 
-<b>Please do not harass us about <i>ANYTHING</i> we say on systems as it isn't in an negative light . We have been going through this for awhile now and we're genuinely fucking sick and tired . Thank you . If you are a decent human being however , still feel free to int !</b>
+<b>Wanna say this due to most recent drama — If you are ready to harass me about <i>ANYTHING</i> i have previously said about systems or stood by ; please kindly stay away and leave me the fuck alone for once . Stop calling me ableist over discomfort i cannot control . People like you are the main reason i can't change to be a better person . Thank You .</b>
 
 <p>In most cases we are either offtab , semi-afk or just overall distant . Please in most cases W2I !! We play Forsaken a LOT when we afk and , we'd prefer to not be bothered so please DNI in that case unless a close friend . Do keep note if we are with a friend already we'd rather prefer not to be interacted w/ unless its compliments , to point out we share a fandom — Or for the good sake of roleplay if we are in one .</p>
 
-<p>I am <b>severely</b> mentally ill and CAN do bad things without the intention of doing so . I can also get verbally violent so please just be aware who you're interacting with — We are not a shitty person we promise , but we'd prefer you save the trouble and *not* befriend us unless we absolutely ask first . Otherwise feel free to int</p>
 
 <i>UUUUUH ??? we are . a microceleb almost now ? huh ? ilove you guys please don't explode . /sil</i>
 <br></br>
