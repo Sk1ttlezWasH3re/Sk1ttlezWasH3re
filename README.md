@@ -1,7 +1,7 @@
 <h5 align="left"> WARNING. DOESN'T LOOK THAT GREAT ON MOBILE I THINK .</h5> 
 
 ##
-<p align="center"><i>`` You want an eye . An eye , for an eye . `` /ref </i>
+<p align="center"><i>`` . . . The only ever girl I'll ever love was Andrew in drag . `` /lyr </i>
 <p align="left">Call me. . . </p>
 <h3 align="left">Skittles ! Or — Rust , Jx1dx1 and Noli .</h3>
 
@@ -11,7 +11,8 @@ Posted by DavidCox88, modified by community. See post 'Timeline' for change hist
 Retrieved 2025-11-17, License - CC BY-SA 4.0
 -->
 
-<p><img align="right" height="500" src="https://github.com/user-attachments/assets/ec5b000e-6806-4e5b-a93e-e7cfc178b89d"> 4teen . they/it + we/us <--- *NOT* a system . mainly sapphic , nonbinary + genderfluid and lunarian with optional star/starself pronous . a lot we're sure <br/><br/><br/> Sign atabook , LOOK AT THE LINKS , PLEASE !! Bound Jx1dx1 , Skittles , Noli & Rust_010 ( HJD specific ) IRL . which means they're always THERE !!! DOUBLES HEAVY DNI PLS !!!!! <br/><br/><br/> our main carrd —> https://sk1ttlezwash3re.carrd.co . other links R in my well , links . detailed DNI page is in progress <br/><br/><br/> Systems please IWxtremeCaution unless friend we tend to get pitiful and mistreat you guys . It's not on purpose we promise /srs <br/><br/><br/> Alexithymic + pretty bad untreated bpd . may be completely unpredictable so please think twice before befriending . otherwise we don't really bite . Our main interests are Roblox ARGs , Forsaken and Rblx in general !</p>
+<p><img align="right" width="300" height="650" alt="1000064425" src="https://github.com/user-attachments/assets/07b22e9c-2919-44ff-b512-6d7a08cecd03" />
+> 4teen . they/it + we/us <--- *NOT* a system . mainly sapphic , nonbinary + genderfluid and lunarian with optional star/starself pronous . a lot we're sure <br/><br/><br/> Sign atabook , LOOK AT THE LINKS , PLEASE !! Bound Jx1dx1 , Skittles , Noli & Rust_010 ( HJD specific ) IRL . which means they're always THERE !!! DOUBLES HEAVY DNI PLS !!!!! <br/><br/><br/> our main carrd —> https://sk1ttlezwash3re.carrd.co . other links R in my well , links . detailed DNI page is in progress <br/><br/><br/> Systems please IWxtremeCaution unless friend we tend to get pitiful and mistreat you guys . It's not on purpose we promise /srs <br/><br/><br/> Alexithymic + pretty bad untreated bpd . may be completely unpredictable so please think twice before befriending . otherwise we don't really bite . Our main interests are Roblox ARGs , Forsaken and Rblx in general !</p>
 
 <p align="right"> AC ; drawn by me !! </p>
 
