@@ -3,7 +3,7 @@
 ##
 <p align="center"><i>`` . . . The only ever girl I'll ever love was Andrew in drag . `` /lyr </i>
 <p align="left">Call me. . . </p>
-<h3 align="left">Skittles ! Or — Rust , Jx1dx1 and Noli .</h3>
+<h3 align="left">Skittles ! Or — Rust , Jx1dx1 , Noli , Scripter .</h3>
 
 <!--
 Source - https://stackoverflow.com/a
