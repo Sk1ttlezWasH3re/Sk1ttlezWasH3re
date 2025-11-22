@@ -1,4 +1,5 @@
 <h5 align="left"> WARNING. DOESN'T LOOK THAT GREAT ON MOBILE I THINK .</h5> 
+<i align="center"> Dangerously mentally unwell as of right now . Will allow interactions , but it's encouraged to avoid friending us unless we ask first . We aren't mentally stable enough to be making friends we know we will NOT care about later .</i>
 
 ##
 <p align="center"><i>`` . . . The only ever girl I'll ever love was Andrew in drag . `` /lyr </i>
