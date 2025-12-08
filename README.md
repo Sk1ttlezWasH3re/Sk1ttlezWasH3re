@@ -1,4 +1,4 @@
-<h5 align="left"> WARNING. DOESN'T LOOK THAT GREAT ON MOBILE I THINK . Also TW newest strawpage has a lot of moving gifs & possible but likely very mild flashing lights . + very cluttered if anyone's triggered B that ?? idk </h5> 
+<h5 align="left"> i follow people i'm friends w/ or wanna befriend ^_^ . WARNING. DOESN'T LOOK THAT GREAT ON MOBILE I THINK . Also TW newest strawpage has a lot of moving gifs & possible but likely very mild flashing lights . + very cluttered if anyone's triggered B that ?? idk </h5> 
 <b align="center"> COLOR OUR TREE !! GO NOW !!! /nf , , , enabled so non-logged in users can leave a message too ^_^ —>  https://colormytree.me/2025/01KBF2J01DJCA3V9DT84AYTD9H </b>
 
 ##
