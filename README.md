@@ -1,5 +1,5 @@
 <h5 align="left"> i follow people i'm friends w/ or wanna befriend ^_^ . WARNING. DOESN'T LOOK THAT GREAT ON MOBILE I THINK . Also TW newest strawpage has a lot of moving gifs & possible but likely very mild flashing lights . + very cluttered if anyone's triggered B that ?? idk </h5> 
-<b>I wish everybody a good Christmas that i never had . Don't try befriending me I'll just ruin everything like i always do .</b>
+<b>SO SORRY IF I DON'T SEE YOUUUU !! Currently going thru a difficult medical situation and it's primarily impairing my vision , + i offtab/ doze off a lot .</b>
 
 ##
 <p align="center"><i>`` . . . The only ever girl I'll ever love was Andrew in drag . `` /lyr </i>
