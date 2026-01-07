@@ -3,7 +3,7 @@
 <h3  align="center"> ♥︎ <a href="https://sk1ttlez-is-h3re.carrd.co">carrd</a> ♥︎ <a href="https://skittlesdni.carrd.co/">dni</a> ♥︎ <a href="https://sk1ttlezishere.straw.page">strawpage</a> ♥︎ </h3>
   <div></div>
   <br></br>
-<p align="center">" It feels like im underwater , Not content to do whatever . " /lyr </p>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=4000&pause=1000&color=F1F787&vCenter=true&width=435&lines=You+were+stitching+up+the+seams;On+every+broken+promise;That+your+body+couldn't+keep;I+think+i+saw+you+in+my+sleep" alt="Typing SVG" /></a>
 <img width="2048" height="123" alt="1000068274" src="https://github.com/user-attachments/assets/c1b99b22-4e20-4ad4-aeb5-d94720c5f772"
 <p><img align="left" <img width="200" height="200" alt="1000068264" src="https://github.com/user-attachments/assets/6baa9b7b-eb62-4e94-96a7-205a30ff5c5d" />
  4teen , croatian . they/it + optional star/starself & void/voiself . call me skittles or jx1dx1 ( or rust )<br></br> <p align="right"> ˚˖𓍢ִ໋❀ ff 2 c+h unless w/ friends ! jx1dx1 , skittles & glass father irl doubles dni <p/>  offtab often . please w2i if i don't respond . sign my ata ! /nf <img width="50" height="50" alt="1000068303" src="https://github.com/user-attachments/assets/b6ed8485-10fa-42cf-8793-d54e0a6ac489" />
