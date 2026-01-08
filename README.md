@@ -13,7 +13,7 @@
 <br></br>
 <img width="2048" height="123" alt="1000068274" src="https://github.com/user-attachments/assets/eb8f28ed-fe2b-4eb5-9e6e-9303ae55db93" />
 
-<img align="right"  width="200" height="200" alt="1000068252" src="https://github.com/user-attachments/assets/da0ae526-74a8-405d-9abe-9f1843221464" /> <p align="right" > bpd , alexithymia and adhd . split personality , not osdd or did i am not a system . <br></br> <p align="left"> may use we/us sometimes . extremely sensitive always iwec . artist , writer + begginer coder & meteorologist <br></br> <p align="right"> systems + dw fandom iwcuf . avoid crowding pls . i block freely 
+<img align="right"  width="200" height="200" alt="1000068252" src="https://github.com/user-attachments/assets/da0ae526-74a8-405d-9abe-9f1843221464" /> <p align="right" > bpd , alexithymia and adhd . UDD , not osdd or did i am not a system . <br></br> <p align="left"> may use we/us sometimes . extremely sensitive always iwec . artist , writer + begginer coder & meteorologist <br></br> <p align="right"> systems + dw fandom iwcuf . avoid crowding pls . i block freely 
 
 <img width="1185" height="240" alt="1000068267" src="https://github.com/user-attachments/assets/aa0f3ae8-10c6-4628-ae06-b5d47a6781fb" />
 
