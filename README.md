@@ -1,4 +1,4 @@
-<b>warning uhh b4 friending i may be a little gross / unpleasant oke . . . ? i do try keeping the freak in tho . . .</b>
+<b>currwntly very mentally unwell / suicidal generally not doing good . please befriend at your own cost</b>
 ![Tumblr_l_1046540992840270](https://github.com/user-attachments/assets/e1fa62f8-6e4d-4a2a-8fa7-aebcd4b41fb3)
 <p align="center"> <sub> flashing lights + gifs warn 4 strawpage </sub>
 <h3  align="center"> ♥︎ <a href="https://sk1ttlez-is-h3re.carrd.co">carrd</a> ♥︎ <a href="https://skittlesdni.carrd.co/">dni</a> ♥︎ <a href="https://sk1ttlezishere.straw.page">strawpage</a> ♥︎ </h3>
