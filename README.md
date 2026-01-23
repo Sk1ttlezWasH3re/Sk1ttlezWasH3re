@@ -1,4 +1,4 @@
-<b>currently very mentally unwell / suicidal generally not doing good . i will not update my sites / answer gimmicks / etc 4 a while sorry . may go on offline mode a lot due 2 generally not being there mentally + over befriending horrible people we genuinely Dont have the guts 2 unfriend . sorry !</b>
+<b>currently not doing good . i will not update my sites / answer gimmicks / etc 4 a while sorry . may go on offline mode a lot due 2 befriending horrible people we genuinely Dont have the guts 2 unfriend . sorry !</b>
 ![Tumblr_l_1046540992840270](https://github.com/user-attachments/assets/e1fa62f8-6e4d-4a2a-8fa7-aebcd4b41fb3)
 <p align="center"> <sub> flashing lights + gifs warn 4 strawpage </sub>
 <h3  align="center"> ♥︎ <a href="https://sk1ttlez-is-h3re.carrd.co">carrd</a> ♥︎ <a href="https://skittlesdni.carrd.co/">dni</a> ♥︎ <a href="https://sk1ttlezishere.straw.page">strawpage</a> ♥︎ </h3>
