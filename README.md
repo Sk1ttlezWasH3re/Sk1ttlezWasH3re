@@ -1,7 +1,7 @@
 <b>currently not doing good . i will not update my sites / answer gimmicks / etc 4 a while sorry . may go on offline mode a lot due 2 befriending horrible people we genuinely Dont have the guts 2 unfriend . sorry !</b>
 ![Tumblr_l_1046540992840270](https://github.com/user-attachments/assets/e1fa62f8-6e4d-4a2a-8fa7-aebcd4b41fb3)
 <p align="center"> <sub> flashing lights + gifs warn 4 strawpage </sub>
-<h3  align="center"> ♥︎ <a href="https://sk1ttlez-is-h3re.carrd.co">carrd</a> ♥︎ <a href="https://skittlesdni.carrd.co/">dni</a> ♥︎ <a href="https://sk1ttlezishere.straw.page">strawpage</a> ♥︎ </h3>
+<h3  align="center"> ♥︎ <a href="https://sk1ttlez-is-h3re.carrd.co">carrd</a> ♥︎ <a href="https://skittlesdni.carrd.co/">dni</a> ♥︎ <a href="https://sk1ttlezishere.straw.page">strawpage</a> ♥︎ <a href="https://skittles-commish.carrd.co">supp 2-4 comms !</a> ♥︎</h3>
   <div></div>
   <br></br>
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=4000&pause=1000&color=F1F787&vCenter=true&width=435&lines=You+were+stitching+up+the+seams;On+every+broken+promise;That+your+body+couldn't+keep;I+think+i+saw+you+in+my+sleep" alt="Typing SVG" /></a>
