@@ -1,4 +1,4 @@
-<b>will be a LOT less active and go offline mode / hiding skins very often as i no longer feel as comfortable playing pony town due to personal reasons + poor reputation . will also be much more reserved around people .</b>
+<b>will be a LOT less active and go offline mode / hiding skins very often as i no longer feel as comfortable playing pony town due to personal reasons + poor reputation . will also be much more reserved around people . If you wanna hang around me more im mainly found playing Nullscape on Roblox .</b>
 ![Tumblr_l_1046540992840270](https://github.com/user-attachments/assets/e1fa62f8-6e4d-4a2a-8fa7-aebcd4b41fb3)
 <p align="center"> <sub> flashing lights + gifs warn 4 strawpage </sub>
 <h3  align="center"> ♥︎ <a href="https://sk1ttlez-is-h3re.carrd.co">carrd</a> ♥︎ <a href="https://skittlesdni.carrd.co/">dni</a> ♥︎ <a href="https://sk1ttlezishere.straw.page">strawpage</a> ♥︎ <a href="https://skittles-commish.carrd.co">supp 2-4 comms !</a> ♥︎</h3>
