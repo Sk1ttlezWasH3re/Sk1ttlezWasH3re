@@ -16,6 +16,9 @@
   <br>
   <br>
 <p align="center"> chronic Nullscape , CoS and Adopt me player . you heard me , i play adopt me . i swear im a cool player guys . . . to be cringe is to be free
+  <br>
+  <br>
+  <b>SENSITIVE . EXTREMELY SENSITIVE . I TAKE <I>EVERYTHING</I> SERIOUSLY AND CRY AND HURT MYSELF ABOUT IT . FUCKING REMEMBER THAT BEFORE ANYTHING ELSE HAPPENS . Thank You .</b>
 <br>
 <br>
 <br>
