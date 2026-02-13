@@ -1,3 +1,8 @@
+<p align="left">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31jajkb5zmwbdal6jtblhbhj6odq&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31jajkb5zmwbdal6jtblhbhj6odq&cover_image=true&theme=spotify-embed&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false&mode=dark">
+  </a>
+</p>
 <p align="center"> <b>Please read the info below .</b> <p>
 <p align="center"> ↓↓↓ </p>
 <br>
