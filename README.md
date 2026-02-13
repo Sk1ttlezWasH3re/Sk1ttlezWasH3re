@@ -13,6 +13,8 @@
 <img width="2048" height="64" alt="1000071987" src="https://github.com/user-attachments/assets/65dcb302-611a-48a7-9da7-e633a45ca15c" />
 <br>
 <br>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&duration=4000&pause=1000&color=7BF700&width=600&height=100&lines=You+can%E2%80%99t+even+guess+the+revolutionary+truth;With+love+that%E2%80%99s+37+degrees+hot;If+you're+happy+%2C+that%E2%80%99s+good+%2C+right+%3F;I%E2%80%99m+getting+older+.+Now+%2C+I'm+getting+older;That+impatience+is+dying+%2C+too" alt="Typing SVG" /></a>
+<br>
 <br>
 
 <img align="center" width="300" height="700" alt="1000071985" src="https://github.com/user-attachments/assets/2e60153e-ccc6-4863-b49f-7a7260d12569" />
