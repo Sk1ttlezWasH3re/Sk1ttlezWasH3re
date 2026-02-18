@@ -9,7 +9,7 @@
 
 <img align="right" width="300" height="700" alt="1000071985" src="https://github.com/user-attachments/assets/2e60153e-ccc6-4863-b49f-7a7260d12569" />
 <br>
-<p align="center"> RECENTLY SWITCHED IDENTITIES . Previously known as the Jx1dx1 guy ꈍ◡ꈍ <br> <br> Skittles / Parrotx2 . <br> 14 . croatian , they/it/he + optional star/starself and void/voidself .  lithromantic , diagnosed adhd + medically recognized bpd . <img width="25" height="25" alt="1000071987" src="https://github.com/user-attachments/assets/6d553002-cf8b-4b8d-be61-6da00c30ca85" />
+<p align="center"> <b>sorry. /gen</b> <br> <br> Skittles / Parrotx2 . <br> 14 . croatian , they/it/he + optional star/starself and void/voidself .  lithromantic , diagnosed adhd + medically recognized bpd . <img width="25" height="25" alt="1000071987" src="https://github.com/user-attachments/assets/6d553002-cf8b-4b8d-be61-6da00c30ca85" />
   <br>
   <br>
 <p align="center"> mainly into mcyt / SMPs , but also Rblx / Minecraft ARGs . 🌙 = offtab / afk . w2i / expect me not to reply .
