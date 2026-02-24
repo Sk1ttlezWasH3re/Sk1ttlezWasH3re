@@ -9,16 +9,16 @@
 
 <img align="right" width="300" height="700" alt="1000071985" src="https://github.com/user-attachments/assets/2e60153e-ccc6-4863-b49f-7a7260d12569" />
 <br>
-<p align="center"> Skittles / Parrotx2 . <br> 14 . croatian , they/it/he + optional star/starself and void/voidself .  lithromantic , diagnosed adhd + medically recognized bpd . <img width="25" height="25" alt="1000071987" src="https://github.com/user-attachments/assets/6d553002-cf8b-4b8d-be61-6da00c30ca85" />
+<p align="center"> Skittles / Parrot . <br> 14 . croatian , they/it/he + optional star/starself and void/voidself .  lithromantic , diagnosed adhd + medically recognized bpd . <img width="25" height="25" alt="1000071987" src="https://github.com/user-attachments/assets/6d553002-cf8b-4b8d-be61-6da00c30ca85" />
   <br>
   <br>
 <p align="center"> mainly into mcyt / SMPs , but also Rblx / Minecraft ARGs . 🌙 = offtab / afk . w2i / expect me not to reply .
   <br>
   <br>
-<p align="center"> chronic Nullscape , CoS and Adopt me player . you heard me , i play adopt me . i swear im a cool player guys . . . to be cringe is to be free
+<p align="center"> definetly not exactly problematic or messed up but my motives are VERY questionable . iwcaution if you plan to get close .
   <br>
   <br>
-  <b>PLEASE CONSIDER THAT IM EXTREMELY SENSITIVE . always iwecare , and even iwcaution sometimes .</b>
+  <b>PLEASE CONSIDER THAT IM EXTREMELY SENSITIVE . always iwecare .</b>
 <br>
 <br>
 <br>
