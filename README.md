@@ -10,7 +10,7 @@
 <p align="center"> Skittles / Parrot . <br> 14 . croatian , they/it/he + opt. star/starself & void/voidself . diagnosed adhd + medically recognized bpd . <img width="25" height="25" alt="1000071987" src="https://github.com/user-attachments/assets/6d553002-cf8b-4b8d-be61-6da00c30ca85" />
   <br>
   <br>
-<p align="center"> definetly not exactly problematic or messed up but my motives are VERY questionable . iwcaution if you plan to get close .
+<p align="center"> 🌙 in pt status = afk will respond late / not respond . i fucking love playing Grace omg oh int if you ship Bedtime ig
 
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31jajkb5zmwbdal6jtblhbhj6odq&redirect=true">
