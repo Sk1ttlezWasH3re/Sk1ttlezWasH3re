@@ -1,4 +1,4 @@
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&duration=4000&pause=1000&color=7BF700&center=true&width=600&height=188&lines=You+can%E2%80%99t+even+guess+the+revolutionary+truth;With+love+that%E2%80%99s+37+degrees+hot;If+you're+happy+%2C+that%E2%80%99s+good+%2C+right+%3F;I%E2%80%99m+getting+older+.+Now+%2C+I'm+getting+older;That+impatience+is+dying+%2C+too" alt="Typing SVG" /></a>
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=4000&pause=1000&color=BD1840&center=true&vCenter=true&width=600&lines=Let's+have+this+little+dance+in+this;Bloody+rain+inside+my+heart+!;To+turn+my+body+into+art+stains;Of+over+washing+rage+!;The+happy+little+accidents+along+the+way+%2C;Built+up+to+this+immense+devastating+tragedy+!)](https://git.io/typing-svg)
 <br>
 <br>
 
@@ -10,11 +10,9 @@
 <p align="center"> Skittles / Parrot . <br> 14 . croatian , they/it/he + opt. star/starself & void/voidself . diagnosed adhd + medically recognized bpd . <img width="25" height="25" alt="1000071987" src="https://github.com/user-attachments/assets/6d553002-cf8b-4b8d-be61-6da00c30ca85" />
   <br>
   <br>
-<p align="center"> 🌙 in pt status = afk will respond late / not respond . i fucking love playing Grace omg oh int if you ship Bedtime ig
-
+<p align="center"> 🌙 in pt status = afk will respond late / not respond
+<br>
+  <br>
+  <p align="center"> links will be done soon ok . check my links for info yes . . . ?
 <p align="center">
-  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31jajkb5zmwbdal6jtblhbhj6odq&redirect=true">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31jajkb5zmwbdal6jtblhbhj6odq&cover_image=true&theme=spotify-embed&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false&mode=dark">
-  </a>
-
 
