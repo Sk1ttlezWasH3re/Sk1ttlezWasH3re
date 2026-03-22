@@ -7,7 +7,7 @@
 <br>
 <br>
 <br>
-<p align="center"> Skittles / John . <br> 14 . croatian , they/it/he + opt. star/starself & void/voidself . diagnosed adhd + medically recognized bpd + dpd . <img width="25" height="25" alt="1000071987" src="https://github.com/user-attachments/assets/6d553002-cf8b-4b8d-be61-6da00c30ca85" />
+<p align="center"> Skittles / John . <br> 14 . croatian , they/it/he + opt. star/starself & void/voidself . diagnosed adhd + medically recognized bpd + dpd . questioning sys becareful !! <img width="25" height="25" alt="1000071987" src="https://github.com/user-attachments/assets/6d553002-cf8b-4b8d-be61-6da00c30ca85" />
   <br>
   <br>
 <p align="center"> 🌙 in pt status = afk will respond late / not respond
