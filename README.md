@@ -6,7 +6,9 @@
 <br>
 <h3  align="center"> ♥︎ <a href="https://skittles-commish.carrd.co/">we rlly need supporter ok ?</a>
 
-<img align="right" width="500" height="700" alt="1000071985" src="https://github.com/user-attachments/assets/4518a1eb-f48c-46b1-9419-b5d5854c0553" />
+<img align="right" width="500" height="700" alt="1000071985" src="https://github.com/user-attachments/assets/37ab5190-32b6-4602-9c00-7f16ccedaff8" />
+
+
 <br>
 <br>
 <br>
