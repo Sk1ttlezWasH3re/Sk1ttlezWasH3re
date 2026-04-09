@@ -1,4 +1,4 @@
-<sub>i will not focus on Grace for a while due to the recent drama as i am mentally drained . I am still John i will just use certain other cosplays for a while . Expect me to go inactive much more as my mental state is currently TERRIBLE + i am close to failing the school year & getting kicked out of my house .</sub>
+<sub>Regarding the Pressure situation i will still play the game , consume content and continue playing as my cosplays , but i will NOT financially support Zeal nor should you ! With all that in mind , i look forward and hope to see Ren's deserved recovery . 💜</sub>
 
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=4000&pause=1000&color=BD1840&center=true&vCenter=true&width=600&lines=Let's+have+this+little+dance+in+this;Bloody+rain+inside+my+heart+!;To+turn+my+body+into+art+stains;Of+over+washing+rage+!;The+happy+little+accidents+along+the+way+%2C;Built+up+to+this+immense+devastating+tragedy+!)](https://git.io/typing-svg)
