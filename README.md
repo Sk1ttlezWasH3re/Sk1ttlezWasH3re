@@ -1,5 +1,2 @@
-rmking soon yayay
-
-strawpage for info ok ??
-
-🌙 in pt status = fully afk / offtab . pls W2I , may not respond / respond late
+<img align="right" width="400" height="400" alt="1000077722" src="https://github.com/user-attachments/assets/11e22f02-80c8-46ce-91cb-0ba5582f8831"> <b>Please remember as kind as i usually am i am a VERY violent person . Generally low temper , BPD + suspected IED . </b> <br></br> <p>Blocked ? I rarely perm block so its for a GOOD REASON . 99% Chance you won't be unblocked if done so . 🌙 in pt status — afk , pls W2I . kate / no response expected
+</p> <br></br> he/they/it + star/void ( opt ! ) pls . more info is on my strawpage ^_^</p><br></br> <p>call me skittles / john . also TCO . all of those r fictkins alongside Fear <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000&color=6E0000&width=600&lines=Quiet+%2C+crawl+to+the+in-between;Silent+%2C+secretive+feeling;Of+fearsome+hatred+that+reaches+the+skies;You+will+bring+joy+to+the+Nowhere+King;When+he+sees+the+light+leaving+your+eyes" alt="Typing SVG" /></a>
