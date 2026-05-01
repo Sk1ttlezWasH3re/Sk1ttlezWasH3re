@@ -1,3 +1,5 @@
+<a align="center" href="https://www.tumblr.com/snowfallinohio?source=share" > I post art ^_^ </a>
 <img width="2000" height="1244" alt="1000077944" src="https://github.com/user-attachments/assets/86578871-bd3e-42e1-8540-fb7aa94a72c2" />
-<p align="center">skittles / john . c+h freely but ask ! actual info on strawpage pls check it ^_^;; — 🌙 in pony town status = afk / offtab please W2I . late / very late or possibly no response when doing so .</p>
+<p align="center">skittles / john . c+h freely but ask ! actual info on strawpage pls check it ^_^;; — 🌙 in pony town status = afk / offtab please W2I . late / very late or possibly no response when doing so .</p> <div></div>
+                                                                                                                                                                                                                        
 <a align="center" href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000&color=6E0000&width=600&lines=Quiet+%2C+crawl+to+the+in-between;Silent+%2C+secretive+feeling;Of+fearsome+hatred+that+reaches+the+skies;You+will+bring+joy+to+the+Nowhere+King;When+he+sees+the+light+leaving+your+eyes" alt="Typing SVG" /></a>
