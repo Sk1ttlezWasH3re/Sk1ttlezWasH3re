@@ -1,5 +1,7 @@
-<a align="center" href="https://www.tumblr.com/snowfallinohio?source=share" > I post art ^_^ </a>
-<img width="2000" height="1244" alt="1000077944" src="https://github.com/user-attachments/assets/86578871-bd3e-42e1-8540-fb7aa94a72c2" />
-<p align="center">skittles / john . c+h freely but ask ! actual info on strawpage pls check it ^_^;; — 🌙 in pony town status = afk / offtab please W2I . late / very late or possibly no response when doing so . Usually free for supp help but please take no as a no if i say no ! I am not obligated to help if busy / etc ; ' D</p> <div></div>
-                                                                                                                                                                                                                        
-<a align="center" href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000&color=6E0000&width=600&lines=Quiet+%2C+crawl+to+the+in-between;Silent+%2C+secretive+feeling;Of+fearsome+hatred+that+reaches+the+skies;You+will+bring+joy+to+the+Nowhere+King;When+he+sees+the+light+leaving+your+eyes" alt="Typing SVG" /></a>
+<img width="1280" height="1280" alt="1000078295" src="https://github.com/user-attachments/assets/4c61833a-333d-4e3c-8469-cd9c6ca5e335" /><div></div> <br><p align="center"> 🐇 &emsp; :: &emsp; skittles &emsp; / &emsp; john &emsp; / &emsp; tco(cho(sen)) &emsp; . &emsp; 14 <div></div>
+
+<p align="center"> 🦜 &emsp; . &emsp; ask &emsp; 4 &emsp; supp &emsp; help &emsp; . &emsp; i'll &emsp; likely &emsp; say &emsp; yes ! </p> <div></div>
+<p align="center"> view &emsp; strwpage &emsp; 4 &emsp; info &emsp; pls &emsp; . &emsp; i &emsp; also &emsp; post &emsp; on &emsp; tumblr ! &emsp; ^_^ <div></div>
+<p align="center"> 🌙 &emsp; = &emsp; afk &emsp; . &emsp; pls &emsp; w2i &emsp; . &emsp; may &emsp; not &emsp; reply
+<p><img align="right" width="160" height="56" src="https://github.com/user-attachments/assets/09144d12-b2dd-4641-bd37-e27904648fda" alt="1000078289" /> <div></div>
+<img align="left" width="99" height="56" alt="1000078288" src="https://github.com/user-attachments/assets/6cc67fc3-460c-4e0f-93d5-c49970439a02" />
