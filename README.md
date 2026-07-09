@@ -1,4 +1,4 @@
-<img width="1000" height="650" alt="1000078295" src="https://github.com/user-attachments/assets/238f5713-1a43-4191-9f08-cd094e47a720" /><div></div> <br><p align="center"> 🐇 &emsp; :: &emsp; skittles &emsp; / &emsp; john &emsp; / &emsp; fictkin names &emsp; . &emsp; 15 &emsp; taken &emsp; ♡
+<img width="1000" height="650" alt="1000078295" src="https://github.com/user-attachments/assets/238f5713-1a43-4191-9f08-cd094e47a720" /><div></div> <br><p align="center"> 🐇 &emsp; :: &emsp; skittles &emsp; / &emsp; john &emsp; / &emsp; uranus &emsp; . &emsp; 15 &emsp; & &emsp; taken &emsp; ♡
 <div></div>
 <p align="center"> 🐤 &emsp; . &emsp; freely &emsp; ask &emsp; 4 &emsp; supp &emsp; help &emsp; . &emsp; i'll &emsp; likely &emsp; say &emsp; yes ! </p> <div></div>
 <p align="center"> view &emsp; strwpage &emsp; 4 &emsp; info &emsp; pls &emsp; . &emsp; i &emsp; also &emsp; post &emsp; on &emsp; tumblr ! &emsp; ^_^ <div></div>
