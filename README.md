@@ -1,8 +1,4 @@
-<img width="1000" height="650" alt="1000078295" src="https://github.com/user-attachments/assets/238f5713-1a43-4191-9f08-cd094e47a720" /><div></div> <br><p align="center"> 🐇 &emsp; :: &emsp; skittles &emsp; / &emsp; john &emsp; / &emsp; uranus &emsp; . &emsp; 15 &emsp; & &emsp; taken &emsp; ♡
-<div></div>
-<p align="center"> 🐤 &emsp; . &emsp; freely &emsp; ask &emsp; 4 &emsp; supp &emsp; help &emsp; . &emsp; i'll &emsp; likely &emsp; say &emsp; yes ! </p> <div></div>
-<p align="center"> view &emsp; strwpage &emsp; 4 &emsp; info &emsp; pls &emsp; . &emsp; i &emsp; also &emsp; post &emsp; on &emsp; tumblr ! &emsp; ^_^ <div></div>
-<p align="center"> 🌙 &emsp; = &emsp; afk &emsp; . &emsp; pls &emsp; w2i &emsp; . &emsp; may &emsp; not &emsp; reply
-<p align="center"> extremely &emsp; sensitive &emsp; . &emsp; always &emsp; iwecare &emsp; / &emsp; caution &emsp; . &emsp; 🌷
-<br></br>
-<img width="2048" height="634" alt="1000081580" src="https://github.com/user-attachments/assets/5e58fe3b-cfdc-46ea-8ffe-acff7d14c31c" />
+<img width="612" height="552" alt="1000087711" src="https://github.com/user-attachments/assets/ff2718e6-bbc2-42ea-8b43-7a2a3d458b98" />
+<p align="center"> im remaking ts . SOME BASIC INFO HOWEVER WHILE YOU WAIT ! Hi i mainly go by skittles or miso but i use uranus aswell . huge fictionkin of many as you can see . i look at sparkleband before bed , I'm not normal help . OKAY JOKES ASIDE ! I'm 15 & don't mind sexual jokes if we're close ok ? i have a veeerry lovely partner that is the absolute peakest ever : aka im happily taken , don't flirt with me . I'm more than free to help with supporter but i have every right to say no , although it's rare ! ok tjats it I'm rmking my links rn </p>
+<br>
+<p align="center"> Croatian 🇭🇷🇭🇷🇭🇷 sign my ata oka ? ok ! canyou tell i like artistry and miso a lot maybe</p>
