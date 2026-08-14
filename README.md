@@ -1,4 +1,4 @@
 <img width="612" height="552" alt="1000087711" src="https://github.com/user-attachments/assets/ff2718e6-bbc2-42ea-8b43-7a2a3d458b98" />
 <p align="center"> im remaking ts . SOME BASIC INFO HOWEVER WHILE YOU WAIT ! Hi i mainly go by skittles or miso but i use uranus aswell . huge fictionkin of many as you can see . i look at sparkleband before bed , I'm not normal help . OKAY JOKES ASIDE ! I'm 15 & don't mind sexual jokes if we're close ok ? i have a veeerry lovely partner that is the absolute peakest ever : aka im happily taken , don't flirt with me . I'm more than free to help with supporter but i have every right to say no , although it's rare ! ok tjats it I'm rmking my links rn </p>
 <br>
-<p align="center"> Croatian 🇭🇷🇭🇷🇭🇷 sign my ata oka ? ok ! canyou tell i like artistry and miso a lot maybe</p>
+<p align="center"> Croatian 🇭🇷🇭🇷🇭🇷 sign my ata oka ? ok ! canyou tell i like artistry and miso a lot maybe . . . i literally DO NOT MIND AT ALL if you submit me on those hall award thingies , i love being known ! If anything let me the the MISO ( DoD ) of ponytown hehe </p>
