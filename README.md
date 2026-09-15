@@ -1,4 +1,9 @@
-<img width="612" height="552" alt="1000087711" src="https://github.com/user-attachments/assets/ff2718e6-bbc2-42ea-8b43-7a2a3d458b98" />
-<p align="center"> im remaking ts . SOME BASIC INFO HOWEVER WHILE YOU WAIT ! Hi i mainly go by skittles or miso but i use uranus aswell . huge fictionkin of many as you can see . i look at sparkleband before bed , I'm not normal help . OKAY JOKES ASIDE ! I'm 15 & don't mind sexual jokes if we're close ok ? i have a veeerry lovely partner that is the absolute peakest ever : aka im happily taken , don't flirt with me . I'm more than free to help with supporter but i have every right to say no , although it's rare ! ok tjats it I'm rmking my links rn </p>
+<img align="center" width="500" height="500" alt="1000087711" src="https://github.com/user-attachments/assets/5a1d7fd2-63cd-4ec5-a7d6-f69b9cf1bfed" /> 
+<br></br>
+<p align="center"> skittles &emsp; / &emsp; miso &emsp; . &emsp; INFP 4w3 sx/sp 468 &emsp; . &emsp; bpd + othr &emsp; ʚɞ &emsp; aiwcaut </p>
 <br>
-<p align="center"> Croatian 🇭🇷🇭🇷🇭🇷 sign my ata oka ? ok ! canyou tell i like artistry and miso a lot maybe . . . i literally DO NOT MIND AT ALL if you submit me on those hall award thingies , i love being known ! If anything let me the the MISO ( DoD ) of ponytown hehe </p>
+<p align="center"> ask 4 supp help freely &emsp; ♡ &emsp; read prns.cc b4 int </p>
+<p align="center"> <a href="https://pronouns.cc/@m1soSoup">prns.cc</a> &emsp; . &emsp; <a href="https://sk1ttlezish3re.atabook.org/">atabook</a> &emsp; . &emsp; <a 
+                                                                                                         <a href="https://snowfallinohio.tumblr.com/?source=share">tumblr</a> &emsp; . &emsp; <a href="https://toyhou.se/Sk1ttlezWasH3re">toyhou.se</a>
+
+
