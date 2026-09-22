@@ -1,3 +1,5 @@
+<p align="center"><i>freely apply me to pt awards if u want !! im the sx4 of pony town totally</i>
+  <br></br>
 <img align="center" width="500" height="500" alt="1000087711" src="https://github.com/user-attachments/assets/5a1d7fd2-63cd-4ec5-a7d6-f69b9cf1bfed" /> 
 <br></br>
 <p align="center"> skittles &emsp; / &emsp; miso &emsp; . &emsp; INFP 4w3 sx/sp 468 &emsp; . &emsp; bpd + othr &emsp; ʚɞ &emsp; aiwcaut </p>
