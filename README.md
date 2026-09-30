@@ -7,5 +7,6 @@
 <p align="center"> ask 4 supp help freely &emsp; ♡ &emsp; read prns.cc b4 int </p>
 <p align="center"> <a href="https://pronouns.cc/@m1soSoup">prns.cc</a> &emsp; . &emsp; <a href="https://sk1ttlezish3re.atabook.org/">atabook</a> &emsp; . &emsp; <a 
                                                                                                          <a href="https://snowfallinohio.tumblr.com/?source=share">tumblr</a> &emsp; . &emsp; <a href="https://toyhou.se/Sk1ttlezWasH3re">toyhou.se</a>
-
+  <br></br>
+  <sup align="center">with <a href="https://github.com/beatzzpurmin0te">beatzzpurmin0te</a> 98% of the time ! </sup>
 
