@@ -9,5 +9,5 @@
                                                                                                          <a href="https://snowfallinohio.tumblr.com/?source=share">tumblr</a> &emsp; . &emsp; <a href="https://toyhou.se/Sk1ttlezWasH3re">toyhou.se</a>
   <br></br>
 
-  <sup> <p align="center"> 🌙 = afk &emsp; w2i &emsp; . &emsp; expect very late or no resp</sup> /p> </sup>
+  <p align="center"> 🌙 = afk &emsp; w2i &emsp; . &emsp; expect very late or no resp</sup> /p>
 
